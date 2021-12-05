@@ -1,0 +1,2 @@
+# Amoled
+Amolec Wallpapers
